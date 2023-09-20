@@ -1,4 +1,4 @@
 # bloody-s-config
-u like big fat nuts don't ya?
-anyway, my config is broken in some moments, but who even cares, right? config makes game look like shit just because i don't have a good pc (excluding my old stupid laptop)
-cya
+ok
+my config for tf2. idk when i update it next time, because for now i don't play tf2. if you have some questions, text me in discord:
+bloodycandies
